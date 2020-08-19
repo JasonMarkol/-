@@ -13,3 +13,4 @@ http://pornovideoshub.com/goddess-violet-go-into-debt-for-me/
 
 - primed
 - handicapped
+- assault：make a physical attack on.
